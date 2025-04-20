@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @sscornelius
-- 👀 I’m interested in Art,universe.
+Shaheeda S. Cornelius sscornelius
+- 👀 I’m interested in aduits
 - 🌱 I’m currently learning kubernetrs...
 - 💞️ I’m looking to collaborate on star code ...
-- 📫 How to reach me m.shy33@icloud.com
+- 📫 How to reach me sscornelius@digitalstarworld.org
 - 😄 Pronouns: .rockstar..
 - ⚡ Fun fact: inventor of digitalstarworld() ...
 
