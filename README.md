@@ -1,10 +1,10 @@
-Shaheeda S. Cornelius sscornelius
-- 👀 I’m interested in aduits
-- 🌱 I’m currently learning kubernetrs...
-- 💞️ I’m looking to collaborate on star code ...
-- 📫 How to reach me sscornelius@digitalstarworld.org
-- 😄 Pronouns: .rockstar..
-- ⚡ Fun fact: inventor of digitalstarworld() ...
+Shaheeda S. Cornelius sscornelius 
+I’m interested in nothing your talking about.
+I’m currently learning how to protect my codes.
+- 💞️ I’m looking to collaborate on STAR DIAMONDS
+  How to reach me m.shy33@icloud.com
+  Pronouns:Rockstar
+ ⚡ Fun fact: inventor of digitalstarworld() 
 
 <!---
 sscornelius/sscornelius is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
