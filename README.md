@@ -1,10 +1,10 @@
 Shaheeda S. Cornelius sscornelius 
-I’m interested in nothing your talking about.
-I’m currently learning how to protect my codes.
+I’m interested in Eur Trade's
+I’m currently learning how to intergate starland in Ghost roll royce.
 - 💞️ I’m looking to collaborate on STAR NFTS
-  How to reach me m.shy33@icloud.com
+  How to reach me at sscornelius@digitalstarworld
   Pronouns:Rockstar
- ⚡ Fun fact: Elon sends me rocket's as requested on X 
+ ⚡ Fun fact: Elon sends me rocket's as requested on X only on Sun-days
 
 <!---
 sscornelius/sscornelius is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
