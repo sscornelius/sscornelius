@@ -1,10 +1,10 @@
 Shaheeda S. Cornelius sscornelius 
-I’m interested in Eur Trade's
-I’m currently learning how to intergate starland in Ghost roll royce.
-- 💞️ I’m looking to collaborate on STAR NFTS
-  How to reach me at sscornelius@digitalstarworld
+I’m interested in Telsa Contract's on Coinbase  
+I’m currently learning how to intergate DIGITALSTARWORLD in A Ghost roll royce.
+-  I’m looking to collaborate on STAR NFTS
+  How to reach me at m.shy33@icloud.com
   Pronouns:Rockstar
- ⚡ Fun fact: Elon sends me rocket's as requested on X only on Sun-days
+ ⚡ Fun fact: i'm going to the moon with SpaceX 🚀
 
 <!---
 sscornelius/sscornelius is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
